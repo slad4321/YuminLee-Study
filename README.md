@@ -1,1 +1,1 @@
-#YuminLee-Study# YuminLee-Study
+#YuminLee-Study
